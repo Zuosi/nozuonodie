@@ -23,7 +23,7 @@ What is this?
 
 > B: No zuo no die.
 
-(from [Urban Dictionary](http://www.urbandictionary.com/define.php?term=no%20zuo%20no%20die&defid=7492947) _**I miss you, Aaron_)
+(from [Urban Dictionary](http://www.urbandictionary.com/define.php?term=no%20zuo%20no%20die&defid=7492947))
 
 Why should we do this?
 ------
